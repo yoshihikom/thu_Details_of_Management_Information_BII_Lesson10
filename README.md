@@ -1,1 +1,1 @@
-# thu_Details_of_Management_Information_BII_Lesson10
+# 経営情報各論BⅡ　第１０回講義資料
